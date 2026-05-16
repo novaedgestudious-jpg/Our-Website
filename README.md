@@ -1,6 +1,6 @@
-# NOVA EDGE STUDIO
+# NOVA EDGE STUDIOUS
 
-مرحبًا بكم في الموقع الرسمي لـ **NOVA EDGE STUDIO**  
+مرحبًا بكم في الموقع الرسمي لـ **NOVA EDGE STUDIOUS**  
 نحن فريق إبداعي نعمل على تطوير:
 
 - مواقع إلكترونية حديثة
